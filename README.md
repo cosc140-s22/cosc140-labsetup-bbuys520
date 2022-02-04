@@ -4,11 +4,11 @@
 
 ### What is one thing that has surprised you so far in Cardiff?
 
-your response
+I'm surprised how friendly everyone is towards Americans. I kind of thought that we might not be the most welcomed country because of our history of sticking our noses in international affairs. However, everyone seems to love our accents and culture and seem genuinely interested in speaking with us. 
 
 ### What are three things that you hope to get out of your study abroad experience this semester?
 
-your response
+I hope to learn Welsh better, find some new restaurants, and meet as many British people as possible. 
 
 ## Feedback
 
