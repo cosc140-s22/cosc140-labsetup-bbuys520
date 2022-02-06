@@ -12,5 +12,5 @@ I hope to learn Welsh better, find some new restaurants, and meet as many Britis
 
 ## Feedback
 
-Once you commit and push your work to Github, I'll update this section with feedback.
+Interesting that you wondered about how americans would be treated.  I think many people think of "ordinary" americans differently than the policies of the US government (and thankfully so!)
 
